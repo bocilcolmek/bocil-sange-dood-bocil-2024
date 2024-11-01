@@ -8,9 +8,7 @@
 Bokep ABG Mainin Memek Santai Banget Viral Sotwe, NB27 Tonton dan Download Video Bokep Gratis Hanya di BOKEPPINTAR.COM
 </p>
 <p style="text-align: left;"><br /></p>
-<p style="text-align: left;"><span style="font-size: large;"><b><a href="https://alihkandulu.blogspot.com">Bokep ABG Mainin Memek Santai Banget Viral Sotwe</a></b></span></p>
 
----
 <!--No 1    Video Bokep Indonesia-->
 
 <h3 style="text-align: left;">
